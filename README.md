@@ -1,0 +1,2 @@
+# stranghter
+Humanos com poderes 
